@@ -1,0 +1,2 @@
+# Karthik-
+All are equal 
